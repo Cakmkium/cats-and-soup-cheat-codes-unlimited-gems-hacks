@@ -1,2 +1,5 @@
-# cats-and-soup-cheat-codes-unlimited-gems-hacks
-Cats and Soup Cheat Codes unlimited free gems Hacks and guide for all cat list
+# Cats and Soup Cheat Codes unlimited free gems Hacks and guide for all cat list
+
+Cats and Soup Cheat Codes unlimited free gems Hacks and guide for all cat list - To catch fish in the cat and soup game, you must build "fish pond" or "fishing ground" facilities. 100 billion gold is needed to build this facility, which will be unlocked after the construction of the "bulletin board and skinned corn" facility. Once built, click it - > wait for the fish to eat the bait. Once taken, click the fish button to hook up and save the fish. Imagine cooking. Now imagine the best dish you can cook. Now let it stand for a while and don't let anyone touch it. Will it get cold? May its quality decline? Very sure. That's why you should sell all the dishes made by your cat. When these dishes are sold at special prices (if they are idle for a long time, your pass will be full), they don't make much money. In order to prevent this from happening, you'd better knock your own plate to sell. You will gain their original value and you will make full use of your cat chef's potential and their status when all this is done. Quality is better than quantity. You spend most of your time on quality. cats and soup cheats engine iphone
+
+<a href="https://watermod.icu/cats-soup/">get here</a>
